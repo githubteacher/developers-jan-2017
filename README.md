@@ -10,7 +10,7 @@
 
 [Gitter chat](https://gitter.im/developers-jan-2017/Lobby?utm_source=share-link&utm_medium=link&utm_campaign=share-link)
 
-## Give Us Feedback
+## Give Us Feedback!
 
 Please take a moment to complete the class survey at: http://www.surveygizmo.com/s3/3129009/9ac0ef5c9108.
 
