@@ -1,2 +1,5 @@
-# This is a sample
-Sample text
+# Bangalore, KA
+
+### Recomendations
+
+### Fun Facts
