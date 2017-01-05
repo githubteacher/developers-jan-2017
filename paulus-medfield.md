@@ -1,7 +1,7 @@
 # Medfield, MA
 
 ### Recommendations
-- Eat at Medfield place
+- Eat sushi at Medfield place
 
 ### Fun Facts
-- wooohoooooooooooooooooooo 
+- wooohoooooooooooooooooooo
