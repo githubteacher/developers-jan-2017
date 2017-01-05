@@ -4,4 +4,4 @@
 - Eat in MTR
 
 ### Fun Facts
-- This is the silicon vally of India
+- This is the silicon valley of India
