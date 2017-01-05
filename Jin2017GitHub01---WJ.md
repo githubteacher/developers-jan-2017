@@ -1,3 +1,6 @@
-#Jin2017GitHub01---WJ.md
+#Jin2017GitHub01---WJ.md, Sunrise, FL
+### Recommendations
+- Sawgrass Mill, just oneday
 
-dddd
+### Fun Fact
+- It's winter. Still not cold.
