@@ -7,3 +7,7 @@
 ### Fun things to do
 - skating in Commons
 - Shopping in Downtown Crossing
+- For great history sites, visit
+  - Freedom trail in Lexington
+  - Kennedy Library at South Boston
+  
